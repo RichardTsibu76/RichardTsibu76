@@ -29,9 +29,7 @@
 - **Twitter**: [Twitter: @TsibuDarkoh](https://twitter.com/TsibuDarkoh)
 
 - **LinkedIn**: [Richard Tsibu Darkoh LinkedIn](https://www.linkedin.com/in/richard-tsibu-darkoh-787481275/)
-- ** - 📞 [Call](tel:+233 (0) 247835976)
-- 💬 [WhatsApp](https://wa.me/ +233 (0) 247835976)
- 
+- 📞 <b> Call or Watsap me on :+233 (0) 247835976 </b> 
 - 😄 Pronouns: **He/Him**
 - ⚡ Fun fact: **I see challenges as opportunities for growth and enjoy thinking outside the box**
 
